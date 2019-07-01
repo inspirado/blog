@@ -9,7 +9,7 @@ ___
 
 
 ___
-[![Chiropractor Melbourne](https://chiropractormelbourne.com.au/wp-content/uploads/2018/04/chiro-logo.png)]
+[![Chiropractor Melbourne](https://chiropractormelbourne.com.au/wp-content/uploads/2018/04/chiro-logo.png)](https://chiropractormelbourne.com.au)
 
 
 ___
