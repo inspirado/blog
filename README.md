@@ -20,7 +20,7 @@ ___
 
 ___
 
-[![Trekking Mountain Nepal](https://trekkingmountainnepal.com/wp-content/uploads/2017/06/cropped-1-1-100x87.png)](https://trekkingmountainnepal.com/) |
+[![Trekking Mountain Nepal](https://trekkingmountainnepal.com/wp-content/uploads/2017/06/cropped-1-1-100x87.png)](https://trekkingmountainnepal.com/)
 
 
 ___
