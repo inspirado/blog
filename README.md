@@ -1,5 +1,5 @@
 # [Trekking Mountain Nepal](https://trekkingmountainnepal.com/) | # [Sandeep Arts](http://sandeeparts.com/) [Under Development]
-![Trekking Mountain Nepal](https://trekkingmountainnepal.com/wp-content/uploads/2017/06/cropped-1-1-100x87.png) | ![Sandeep Arts](http://sandeeparts.com/wp-content/uploads/2019/05/2.jpg)
+![Trekking Mountain Nepal](https://trekkingmountainnepal.com/wp-content/uploads/2017/06/cropped-1-1-100x87.png) | ![Sandeep Arts]()
 
 
 
