@@ -9,13 +9,13 @@ ___
 
 ___
 ### [Chiropractor Melbourne](https://chiropractormelbourne.com.au/)
-![Chiropractor Melbourne](https://corehealthchiropractic.com.au/wp-content/uploads/2013/05/noosa-chiropractic-logo1.png)
+![Chiropractor Melbourne](https://chiropractormelbourne.com.au/wp-content/uploads/2018/04/chiro-logo.png)
 
 
 ___
 
 ### [Core Health Chiropractor](https://corehealthchiropractic.com.au/)
-![Core Health Chiropractor](https://corehealthchiropractic.com.au/wp-content/uploads/2013/08/About-noosa-chiropractic.jpg)
+![Core Health Chiropractor](https://corehealthchiropractic.com.au/wp-content/uploads/2013/05/noosa-chiropractic-logo1.png)
 
 
 ___
